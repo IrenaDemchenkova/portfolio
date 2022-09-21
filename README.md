@@ -1,3 +1,5 @@
+![](https://kabinetpsychologa.ru/wp-content/uploads/2019/05/IMG_8227-1-225x300.jpg)
+
 # Ирина Демченкова
 
 ## Краткая биография
